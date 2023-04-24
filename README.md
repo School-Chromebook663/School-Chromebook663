@@ -1,4 +1,3 @@
-Hello there peoples, this me account where I edit games for me school chromebook cus it the funny.<br>
-e<br>
+Do you ever think that maybe the reason there wasn't a second coming of Jesus is because he fears what he has created?
 <br>
-I'm currently working on a game right now, so I'll be inactive... probably forever.
+Anyways, WEH
